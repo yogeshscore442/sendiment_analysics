@@ -137,10 +137,8 @@ Cyber Security Engineering Student
 ## 🔎 Product Analysis Interface
 
 
-
-![WhatsApp Image 2026-02-10 at 8 21 44 PM (1)](https://github.com/user-attachments/assets/c6922e93-85ec-483e-a5e6-8549ee9174d0)
-
 ![WhatsApp Image 2026-02-10 at 8 21 44 PM](https://github.com/user-attachments/assets/acb276b9-db05-417b-be59-abb9f1d513cd)
+
 
 
 
