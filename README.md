@@ -135,7 +135,6 @@ Cyber Security Engineering Student
 
 ---
 
-Now listen.
+![WhatsApp Image 2026-02-10 at 8 21 44 PM (1)](https://github.com/user-attachments/assets/cfa18e21-c49c-4a7f-9a5e-b5048f32f984)
 
-Before pushing:
 
